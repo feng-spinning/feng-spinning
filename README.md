@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @feng-spinning
+- 👋 Hi, I’m @feng-spinning. I spin every day!
 - 👀 I’m interested in Incoherent Holography, Optical Computing and Intelligence LED Screen
 - 📫 How to reach me fengzj22@mails.tsinghua.edu.cn
 - 😄 Pronouns: RRRRREEEEAAAADDDD MORE!
