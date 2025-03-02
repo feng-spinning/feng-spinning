@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @feng-spinning. I spin every day!
-- 👀 I’m interested in Incoherent Holography, Optical Computing and Intelligence LED Screen
-- 📫 How to reach me fengzj22@mails.tsinghua.edu.cn
+- 👋 Hi, I’m @feng-spinning. Electrons in me spin every day!
+- 👀 I’m interested in Optical Computing and Optical Diffraction Tomography etc. etc.
+- 📫 How to reach me: fengzj22@mails.tsinghua.edu.cn
 - 😄 Pronouns: RRRRREEEEAAAADDDD MORE!
 - ⚡ Fun fact: To live, is to change the world.
 
